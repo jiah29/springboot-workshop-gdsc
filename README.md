@@ -8,4 +8,4 @@ Accompanying Slides: https://docs.google.com/presentation/d/1IiKXoA6WCQGTnAXxqMc
 
 Setup Instructions: https://drive.google.com/file/d/1jv_jpr3nJdf_OXhWrtm5zICfqd286oJl/view?usp=sharing
 
-Event Recording: To be updated.
+Event Recording: https://drive.google.com/file/d/1-RJI3oYt8O7dqyz6PCpUXweBQht1LCOr/view?usp=sharing
